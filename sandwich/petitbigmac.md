@@ -1,4 +1,4 @@
-petit pain
+git fetchpetit pain
 
 petite salade
 
