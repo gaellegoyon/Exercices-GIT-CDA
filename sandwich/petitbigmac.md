@@ -3,13 +3,13 @@ Ingrédients :
 
 - des trucs pas ouf
 
-petit pain
+- petit pain
 
-petite salade
+- petite salade
 
-pas beaucoup de sauce
+- pas beaucoup de sauce
 
-par contre un parfait 
+- par contre un parfait 
 
 ![image petit big mac](https://www.club-sandwich.net/images/photoarticles/histoire-bigmac.jpg)
 
